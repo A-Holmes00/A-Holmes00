@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Special
 - 👀 I’m interested in | PlayStation and Comic Books
 - 🌱 I’m currently learning to| Regulate my emotions
-- 💞️ I’m looking to collaborate on | Work related LARP Co-Op  - Resolving daily challenges to earn XP (A Salary)
+- 💞️ I’m looking to collaborate on | Work related LARP Co-Op  - Resolving daily challenges to earn in-game currency
 - 📫 How to reach me | My therapist hasn't figured that out yet
 
 <!---
